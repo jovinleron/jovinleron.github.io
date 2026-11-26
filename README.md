@@ -1,2 +1,0 @@
-# jovinleron.github.io
-portfolio
